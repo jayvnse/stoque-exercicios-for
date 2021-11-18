@@ -1,0 +1,1 @@
+# stoque-exercicios-for
